@@ -1,4 +1,4 @@
-# 
+# Automático Adobe Illustrator plugins para Mac OS | Ultimato Adobe Illustrator plugins para PC Windows. Com design responsivo e operações de caminho — otimizado para máximo desempenho em cada plataforma.
 
 
 
